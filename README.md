@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @mpsnp
+# 👋 Hi, I’m George
 
 ## ✅ Summary
 
